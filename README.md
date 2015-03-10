@@ -1,3 +1,3 @@
 # canon
 
-Welcome to canon: a catalog offering resources on everything from mentorship, to being a better writer, to managing your chronic illness.
+Welcome to canon: it's whatever I want.
